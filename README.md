@@ -1,1 +1,1 @@
-# Inteligencia-Artificial---trabalho-1
+# Inteligencia-Artificial-trabalho-1
